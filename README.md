@@ -14,3 +14,4 @@ iam a middle class family
 i have no roll model because my ambition is a doctor 
 but enter this college still now iam change my thought to become a software developer and iam also try group 4 exam
 but i think next 5 or 6 years after me as a roll model for the other engineer 
+#For manikandan sir,i think your very innocent,you will be help for all the student step by step your a best faculty oh this college, first you will come to my class room,you said engineering has no vacancy for all the student really i afraid that but i focused more in studies 
